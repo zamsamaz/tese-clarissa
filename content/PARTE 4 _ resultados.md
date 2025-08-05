@@ -1,0 +1,6 @@
+	[[Relatos de encontros dentro da armadilha de sangue]]	
+	[[Recuperando os sentidos - menstruação como experiência erótica]]
+	[[Montando armadilhas - por uma ciência insurgente e alegre]]
+		[[O que é uma armadilha?]]	
+		[[Mapeando o terreno]]	
+		[[Montando nossas armadilhas]]	
